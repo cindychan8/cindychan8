@@ -1,5 +1,4 @@
    # **👋 Hi, I’m Cindy Chan**
-****
 
 - 👀 Passionate about leveraging data to drive real world business insights.
   
@@ -9,7 +8,7 @@
   
 - 📫 How to reach me Cindy23mtcvv@gmail.com.
   
-- 😄 Start to make friends and talk here: [LinkedIn](https://www.linkedin.com/in/cindy-chen) | [Email](mailto:Cindy23mtcvv@gmail.com)
+- 😄 Start to make friends and talk here: [LinkedIn](https://www.linkedin.com/in/cindy-chen) | [Ins](cindy.zz8)
 
 ****
 WELCOME TO MY FLOWER 💐💐 WORLD 
