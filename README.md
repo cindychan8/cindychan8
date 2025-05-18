@@ -1,4 +1,4 @@
-   # **👋 Hi, I’m Cindy Chan**
+   # **👋 Hi, I’m Cindy Chen**
 
 - 👀 Passionate about leveraging data to drive real world business insights.
   
